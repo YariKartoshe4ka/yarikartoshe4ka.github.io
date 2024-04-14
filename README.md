@@ -1,1 +1,0 @@
-# yarikartoshe4ka.github.io
